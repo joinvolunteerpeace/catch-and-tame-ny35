@@ -1,4 +1,4 @@
-
+Experience catch and tame like never before with updated Script for catch and tame, the #1 Script. Includes speed and teleport for unbeatable
 
 
 
